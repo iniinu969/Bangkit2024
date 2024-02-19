@@ -10,5 +10,4 @@
   - Bangkit Calendar : https://calendar.google.com/calendar/u/7/r?pli=1
   - Logbook KM : https://kampusmerdeka.kemdikbud.go.id/activity/active
   - Logbook Kampus: https://forms.office.com/Pages/ResponsePage.aspx?id=D_6vkKPCCEG7mGzrTpTvFYvboZqzq89KorRskL_gfBVUMUNFVFUxTjE3RDk5ODFFOEFSTTE1S0NWQS4u
- 
-  - 
+  - File Progress Logbook : https://telkomuniversityofficial-my.sharepoint.com/:x:/g/personal/kampusmerdeka_telkomuniversity_ac_id/EWc3H4TvdaBApAVc3625iVkBgPZh2Ajmg_DcMxnS5L2Rhw?e=13lFPc
