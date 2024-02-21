@@ -12,3 +12,5 @@
   - Logbook Kampus: https://forms.office.com/Pages/ResponsePage.aspx?id=D_6vkKPCCEG7mGzrTpTvFYvboZqzq89KorRskL_gfBVUMUNFVFUxTjE3RDk5ODFFOEFSTTE1S0NWQS4u
   - File Progress Logbook : https://telkomuniversityofficial-my.sharepoint.com/:x:/g/personal/kampusmerdeka_telkomuniversity_ac_id/EWc3H4TvdaBApAVc3625iVkBgPZh2Ajmg_DcMxnS5L2Rhw?e=13lFPc
 
+
+https://docs.google.com/document/d/1IlMrKgWltH37bYCJGCWJIZZwT7Y05fsuxsHL7tq_CJ4/edit?usp=sharing&resourcekey=0-hHy8_8D70uuhcIBOtVs2ew
